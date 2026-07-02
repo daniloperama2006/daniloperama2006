@@ -27,8 +27,8 @@ I specialize in building robust applications, designing backend architectures, a
 
 ### 🤝 Let's Connect!
 
-* **LinkedIn:** [Your Professional Name](https://linkedin.com/in/YOUR_LINKEDIN_USERNAME)
-* **Email:** [your.email@example.com](mailto:your.email@example.com)
+* **LinkedIn:** [](https://www.linkedin.com/in/daniel-leonardo-lopez-valderrama-b1b94720b/)
+* **Email:** [danileo.lopez.v@gmail.com](mailto:danileo.lopez.v@gmail.com)
 
 ---
 
